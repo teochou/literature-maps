@@ -30,7 +30,7 @@
 
 - 《暗处的女儿》埃莱娜·费兰特 [在线阅读](an-chu-de-nv-er.pdf)
 - 《反抗的忧郁》克拉斯诺霍尔卡伊·拉斯洛 [在线阅读](fan-kang-de-you-yu.pdf)
-- 《哈姆奈特》玛姬·欧法洛[在线阅读](ha-mu-nai-te.pdf)
+- 《哈姆奈特》玛姬·欧法洛 [在线阅读](ha-mu-nai-te.pdf)
 - 《军靴男孩》格雷格·科普·怀特 [在线阅读](jun-xue-nan-hai.pdf)
 - 《老人与海》海明威 [在线阅读](lao-ren-yu-hai.pdf)
 - 《乔瓦尼的房间》詹姆斯·鲍德温 [在线阅读](qiao-wa-ni-de-fang-jian.pdf)
